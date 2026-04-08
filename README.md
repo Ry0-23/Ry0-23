@@ -1,7 +1,7 @@
-i m looking for job lol.
+i m harsh's alter ego.
 
 
-My Server:
+
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/7Fqbryf3) 
 
 
